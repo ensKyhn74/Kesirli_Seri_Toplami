@@ -1,0 +1,1 @@
+# Kesirli_Seri_Toplami
